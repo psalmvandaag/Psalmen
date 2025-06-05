@@ -6,7 +6,7 @@ Ontdek waarom deze eeuwenoude psalmen nog altijd inspireren. De Statenvertaling 
 
 ## Over het Project
 
-Psalm Vandaag transformeert alle 150 Bijbelse psalmen uit de Statenvertaling naar moderne muziekstijlen. Met behulp van AI creëren we een brug tussen eeuwenoude wijsheid en eigentijdse muziek.
+Psalm Vandaag transformeert alle 150 Bijbelse psalmen uit de Statenvertaling naar moderne muziekstijlen. Met behulp van AI creëren we een brug tussen eeuwenoude teksten en eigentijdse muziek.
 
 ## Luister Nu
 
